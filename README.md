@@ -8,7 +8,7 @@
 
 - Ask me about **C, HTML, CSS and basics of Data Structures & Algorithms**
 
-- How to reach me **s.rastogi2006@gmail.com**
+- How to reach me **rastogi.s2006@gmail.com**
 
 - Know about my experiences [https://drive.google.com/file/d/1dsPqklOssy6VY8aNKuq6y79_xeNtVphj/view?usp=share_link](https://drive.google.com/file/d/1dsPqklOssy6VY8aNKuq6y79_xeNtVphj/view?usp=share_link)
 
